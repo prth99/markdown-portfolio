@@ -1,1 +1,1 @@
-[LinkedIn] (https://www.linkedin.com/in/parthbhardwaj99/)
+[LinkedIn](https://www.linkedin.com/in/parthbhardwaj99/)
